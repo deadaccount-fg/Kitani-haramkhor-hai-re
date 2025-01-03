@@ -3,7 +3,7 @@
 
 bhai kisaka hai under
 
-understanding ka time gaya na lekin tu ye sab east way me bhi kar sakti thi 
+understanding ka time gaya na lekin tu ye sab easy way me bhi kar sakti thi 
 
 aur apane apako ek question puch "tu kon hai"
 
